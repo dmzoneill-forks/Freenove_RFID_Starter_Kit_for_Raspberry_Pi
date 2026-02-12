@@ -37,7 +37,7 @@ We will reply to you within one working day.
 
 Please visit the following page to purchase our products:
 
-http://store.freenove.com
+http://freenove.com/store.html
 
 Business customers please contact us through the following email address:
 
